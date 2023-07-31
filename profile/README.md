@@ -56,6 +56,6 @@ Rafael Lopes
 ### Engenheiro de banco de dados:
 - Rafael Menezes
 
-  Currículo lattes: http://lattes.cnpq.br/4399349211435607
+  Currículo lattes: http://lattes.cnpq.br/6951635583842593
 
 
